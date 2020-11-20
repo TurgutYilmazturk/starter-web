@@ -12,4 +12,4 @@ Somethings will be done before tomorrow
 
 ##CopyRight
 
-CopyRight filan
+CopyRight filan. All right reserved falan.
